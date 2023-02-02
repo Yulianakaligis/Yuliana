@@ -1,0 +1,2 @@
+# Yuliana
+Tugas informatika
